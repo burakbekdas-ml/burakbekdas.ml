@@ -1,2 +1,2 @@
-# burakbekdas.ml
-burak bekdaş
+BURAK BEKDAŞ
+BURAK BEKDAŞ
